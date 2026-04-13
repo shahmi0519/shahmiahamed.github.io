@@ -1,2 +1,0 @@
-# shahmiahamed.github.io
-Portfolio
